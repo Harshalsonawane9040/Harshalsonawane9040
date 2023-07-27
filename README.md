@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Harshalsonawane9040
-- 👀 I’m interested in cyber security
+- 👀 I’m interested in software development
 - 🌱 I’m currently learning IT Engineering 
 - 💞️ I’m looking to collaborate on reserch team
 - 📫 How to reach me https://www.linkedin.com/in/harshalsonawane9040
